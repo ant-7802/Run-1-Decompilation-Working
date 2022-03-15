@@ -12,3 +12,5 @@ https://github.com/lekug/lekug.github.io/tree/main/tn6pS9dCf37xAhkJv
 
 
 I also used save all resources to do this (amazing extension ngl)
+
+run 1 is my favorite too lol
